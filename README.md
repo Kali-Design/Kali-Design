@@ -1,4 +1,4 @@
-### Hi Henri-Michel 👋
+### Hi Henri-Michel alias Kali-Design 👋
 
 <!--
 **Kali-Design/Kali-Design** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
