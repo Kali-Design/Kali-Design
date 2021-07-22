@@ -1,7 +1,8 @@
 
 ### Hi Henri-Michel 👋
 
-![How-To-Write-the-Best-Smart-Contract-For-Your-ICO_3-1100x450](https://user-images.githubusercontent.com/65901087/126629894-b9061085-f8b9-4bfc-9543-c899fa8bb6e6.png)
+![778614103-min](https://user-images.githubusercontent.com/65901087/126630043-cb770a26-dbd0-4fc4-80bc-6a7088f5c10f.jpg)
+
 
 
 
