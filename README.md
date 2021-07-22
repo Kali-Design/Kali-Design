@@ -1,6 +1,7 @@
 
 ### Hi Henri-Michel 👋
 
-![Ethwallpaper co-our-holiday-gift-to-the-Ethereum-community](https://user-images.githubusercontent.com/65901087/126629839-64519f85-63c1-4de7-894d-a2748d95ed5c.jpeg)
+![How-To-Write-the-Best-Smart-Contract-For-Your-ICO_3-1100x450](https://user-images.githubusercontent.com/65901087/126629894-b9061085-f8b9-4bfc-9543-c899fa8bb6e6.png)
+
 
 
