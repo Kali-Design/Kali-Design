@@ -1,5 +1,6 @@
 
-### Hi Henri-Michel alias Kali-Design 👋
+### Hi Henri-Michel 👋
 
-![ethereum-wallet](https://user-images.githubusercontent.com/65901087/126629665-528e5fde-6d91-4855-b63d-2874d2fdd0e5.jpeg)
+![Ethwallpaper co-our-holiday-gift-to-the-Ethereum-community](https://user-images.githubusercontent.com/65901087/126629839-64519f85-63c1-4de7-894d-a2748d95ed5c.jpeg)
+
 
