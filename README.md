@@ -1,3 +1,4 @@
+![pièce ethereum](https://user-images.githubusercontent.com/65901087/126845693-4388c0ab-c1a6-4e45-9584-07c2ebc43ae7.jpg)
 ### Hi, I'm Henri-Michel 👋
 
 
